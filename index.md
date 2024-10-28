@@ -10,7 +10,7 @@
 
 * 2 tsp of baking soda
 * 8oz of soy noodles
-* 
+  
 ##### Vegetables
 
 * 1 medium carrot
