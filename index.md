@@ -4,6 +4,8 @@
 
 ### Soy Noodles Salad
 
+![image](https://github.com/user-attachments/assets/2f439113-9ece-410d-87fc-f41ca5b51b83)
+
 #### Ingredients
 
 ##### Noodles
