@@ -10,19 +10,19 @@
 
 ##### Noodles
 
-* 2 tsp of baking soda
+* 1/2 tsp of baking soda
 * 8oz of soy noodles
   
 ##### Vegetables
 
 * 1 medium carrot
 * 1 celery stalk
-* 4oz of edamame
+* 2oz of edamame
 
 ##### Sauce
 
 * 4-5 cloves of garlic
-* 2 tbsp of olive oil
+* 1 tbsp of olive oil
 * 2 tsp of sugar
 * 1 tsp of mirin
 * 1 tbsp of salt (or more to taste)
@@ -35,7 +35,7 @@
 
 1. Bring water to a boil in a pot for blanching the soy noodles.
 
-2. Put soy noodles and baking soda in the boiling water and blanch for 30-40 seconds, bubbles will form when the baking soda is added, and it should stop bubbling within 30-40 seconds. Take soy noodles out and drain and let it cool. If you're impatient, you can rinse the noodles with cold water to help it cool.
+2. Put soy noodles and baking soda in the boiling water and blanch for 1-2 minutes, bubbles will form when the baking soda is added, and it should stop bubbling within 30-40 seconds. When soft to taste, take soy noodles out and drain and let it cool. If you're impatient, you can rinse the noodles with cold water to help it cool.
 
 #### Prepare vegetables
 
